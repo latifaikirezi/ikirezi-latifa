@@ -1,2 +1,0 @@
-# ikirezi-latifa
-ok
